@@ -1,2 +1,4 @@
 # SinyoDanTemanTeman
-ppp
+Zaqi Habibullah_6706213053
+Sinyo Simpers Soba_6706213075
+Muhammad Hudaibi_6706213010
